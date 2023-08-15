@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @thatlivingthinginthecorneroverthere
-- 😀 I'm currently a student
+- 😀 I'm currently a student that knows way to much
 - 👀 I’m interested in: stuff
 - 🌱 I’m currently learning: stuff
 - 💞️ I’m looking to collaborate on: stuff
